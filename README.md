@@ -7,7 +7,7 @@
 <img width="1559" height="120" alt="IMG_9907" src="https://github.com/user-attachments/assets/7b2f4d40-846f-436d-a54e-8c0599313d95" />
 
 
-My names are all stated in my description! Be sure to read that... merci. I am 20 years old, though please do not be afraid to interact with me. I do not bite!
+My names are all stated in my description! Be sure to read that... merci. I am 21 years old, though please do not be afraid to interact with me. I do not bite!
 
 
 <img width="1559" height="120" alt="IMG_9908" src="https://github.com/user-attachments/assets/e1b8a521-c622-45a3-8b28-21313fcc5be5" />
