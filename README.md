@@ -26,7 +26,7 @@ I was born in the commune Eguisheim, France and lived there for 18 years, I assu
 
 <img width="1559" height="120" alt="IMG_9908" src="https://github.com/user-attachments/assets/e1b8a521-c622-45a3-8b28-21313fcc5be5" />
 
-I can usually be found with my friends, and I quite enjoy being interacted with, so don't be shy. Usually sitting with my lovely friends elizavetahedervary and ajthepeach and  (and occassionally others!!) <img width="20" height="20" alt="IMG_9901" src="https://github.com/user-attachments/assets/296705cc-b308-4891-abcf-3bf2521ba946" />
+I can usually be found with my friends, and I quite enjoy being interacted with, so please c*h if you so wish! Usually sitting with my lovely friends elizavetahedervary and ajthepeach, occassionally others!! <img width="20" height="20" alt="IMG_9901" src="https://github.com/user-attachments/assets/296705cc-b308-4891-abcf-3bf2521ba946" />
 
 <img width="1559" height="120" alt="IMG_9907" src="https://github.com/user-attachments/assets/7b2f4d40-846f-436d-a54e-8c0599313d95" />
 
