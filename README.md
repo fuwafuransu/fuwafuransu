@@ -39,7 +39,7 @@ I like to remain mostly androgynous, so please use he/she interchangeably on me,
 
 
 
-My socials are as follows, Tiktok: fuwafuransu Discord: parikou
+My socials are as follows, Tiktok: parikou!! Discord: parikou (these are both shared accounts!! but i'm using them mostly outside of a few servers ^_^)
 
 That is all for now. Merci for reading all the way through, mon chou!!
 
