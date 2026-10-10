@@ -1,4 +1,4 @@
-
+stop saying im a groomer / weirdo i have tons of people who can confirm i am not 
 
 
  <img width="1000" height="678" alt="ok  ok" src="https://github.com/user-attachments/assets/06fb8706-cf37-4a4d-8cfc-9ef181e1b535" />
