@@ -1,4 +1,6 @@
+https://docs.google.com/document/d/1J9ExI6ljogPuVeUHxrTBMbzDiUbzaOkeP7Tl6gTXRZo/
 
+^ made by my friend cloud. please read. not a "response", but important.
 
  <img width="1000" height="678" alt="ok  ok" src="https://github.com/user-attachments/assets/06fb8706-cf37-4a4d-8cfc-9ef181e1b535" />
 
