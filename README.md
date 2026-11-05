@@ -15,11 +15,11 @@ I was born in the commune Eguisheim, France and lived there for 13 years, I assu
 
 I can usually be found with my friends, and I quite enjoy being interacted with, so please c*h if you so wish! Usually sitting with my lovely friends aj, ame, vargas, and many others!!
 
-I have been in this fandom nearly 6 years now... I do not care about ships so please don't involve me with them unless given permission to.
+I have been in this fandom nearly 5 years now... I do not care about ships so please don't involve me with them unless given permission to.
 
 I like to remain mostly androgynous, so please use he/she interchangeably on me, as it helps a lot.
 
 My socials are as follows, 
-Tiktok: fuwafuransu , hetaareitalia | Discord: parikou | Tumblr: hetaareitalia
+Tiktok: fuwafuransu , hetaareitalia | Discord: .tomatoesfairy | Tumblr: hetaareitalia
 
 merci~
